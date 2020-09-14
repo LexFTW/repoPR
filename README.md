@@ -1,3 +1,3 @@
 # README
 
-esta mierda me ase enfureser
+esta cosa me enfada
